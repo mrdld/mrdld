@@ -12,7 +12,7 @@
 
 微信扣扣粉丝群：https://irrcg1.fun/?path=/qun.html  禁止直接点击访问）请复制链接粘贴到浏览器
 
-失联获取最新地址方法1: https://github.com/rrcg1 （禁止直接点击访问）请复制链接粘贴到浏览器
+失联获取最新地址方法1: https://github.com/mrdld （禁止直接点击访问）请复制链接粘贴到浏览器
 
 失联获取最新地址方法2: 📧发任意内容到邮箱 renrenchigua@gmail.com （禁止直接点击访问）请复制链接粘贴到邮件App
 
